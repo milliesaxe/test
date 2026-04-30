@@ -3,4 +3,5 @@
                      .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
 
 
-<img width="200" height="100" alt="Screenshot_2026-04-29_170607" src="https://github.com/user-attachments/assets/d89953d3-fb17-41d0-91ac-668fbe07852f" />
+  
+[rentry](https://rentry.co/amandayoungluver) , , [Strawpage](https://milliesaxeee.straw.page) , , [rentry 2](https://rentry.co/hellpistol) 
